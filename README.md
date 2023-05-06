@@ -1,4 +1,4 @@
-### Hi there 👋, TI SAMO DODJI MENI I TVOJI LATINA GENI <3
+### Hi there 👋, LETS HAVE A TALK WHILE CODING
 
 <!--
 **a1eks4/a1eks4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
